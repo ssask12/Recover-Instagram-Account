@@ -1,6 +1,6 @@
 # Recover-Instagram-Account
 
-Go to Here:- https://ssask12.github.io/Recover-Instagram-Account/
+Go to Here:- http://recoverinstaaccount.tk/
 
 Did you forget your Instagram password but you don’t have access to your email or phone number?
 If you don’t have access to your email or phone number, you won’t be able to reset your Instagram password.
